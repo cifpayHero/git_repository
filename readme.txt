@@ -1,3 +1,2 @@
 First time to use the git_hub
-µÚÒ»´ÎÊ¹ÓÃ
-
+ç¬¬ä¸€æ¬¡ä½¿ç”¨
